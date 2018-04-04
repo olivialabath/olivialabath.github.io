@@ -1,1 +1,1 @@
-[privacy policy](/privacy_policy)
+[Austin Allergy Alert](/AustinAllergyAlert/)
